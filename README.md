@@ -1,1 +1,1 @@
-# GOLD
+# GOLD  Hi: Friends of the company (xsinergia) is a lucrative investment that comes with a $ 100 startup capital.  In the first option field, enter the sponsor (kourosh22) Fill in the rest of the options.  This company earns a minimum profit of $ 1/25 per $ 100 of $ 200 business day earnings. The more you invest, the more profit the higher the profit percentage
